@@ -6,7 +6,7 @@
   - vom Steg reinrutschen vorwärts
   - vom Steg reinrutschen rückwärts
   - dem Boot vom Steg aus hinterher springen 
-  - [![Speed Launch](https://img.youtube.com/vi/Y6Lo8jOSJ0c/0.jpg)](https://www.youtube.com/watch?v=Y6Lo8jOSJ0c)
+  - [![Speed Launch](https://img.youtube.com/vi/Y6Lo8jOSJ0c/2.jpg)](https://www.youtube.com/watch?v=Y6Lo8jOSJ0c)
 
 - "Voltigieren"
   - hinter den Süllrand setzen, Beine ins Wasser
