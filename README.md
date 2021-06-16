@@ -19,7 +19,7 @@ Der Fokus lag wieder auf "body und boat", mit den Unterschied dass wir letzte Wo
   - Dritte Stufe: Bogenschlag rückwärts mit Grönlandpaddel (Grund: mehr Auftrieb), wobei beide Hände ein Ende des Paddels greifen und das komplette Paddel über die Wasseroberfläche geführt wird.
   - Flache Stütze in Fahrt (Zweck: schnell Drehen bei Fahrwasser)
   - Hohe Stütze in Fahrt (Zweck: s.o.)
-  - Vorübung zum Haghighi (was ich nicht wirklich verstanden habe, kann ich daher nicht beschreiben)
+  - Vorübung zum Haghighi: ein rückwärtiger Bogenschlag gelehnt oder stark gelehnt, je nach Mut. Schön weit hinten am Boot beginnen. Rückführen des Paddels (hier in der Vorübung) dann auf der Wasseroberfläche streichend, aber weiterhin gelehnt. 
   - [![Haghighi](https://img.youtube.com/vi/sBVh6LquFYU/3.jpg)](https://www.youtube.com/watch?v=sBVh6LquFYU)
 - Feedbackrunde:
   - Wir sind mutiger geworden und trauen uns, stärker zu lehnen.
