@@ -14,12 +14,13 @@ Der Fokus lag wieder auf "body und boat", mit den Unterschied dass wir letzte Wo
   - Speziellen T-Lenzen: der mit dem vollen Boot fährt auf die Spritzdecke von jemand anderem und dreht sich dann zur Seite und wieder hoch (mit Hilfe des anderen).
   - [![The Dump](https://img.youtube.com/vi/IIeYHwWs5pc/3.jpg)](https://www.youtube.com/watch?v=IIeYHwWs5pc)
 - Zum Thema Lehnen:
-  - Vorübung zu zweit für Bogenschlag rückwärts. Der Partner hält das Boot des Übenden an der Spitze umklammern (wie bei "push &pull"), damit der Übende nicht reinfällt und sich traut sich weit zu lehnen. Beim Bogenschöag rückwärts (wie beim Rückwärtspaddeln) darauf achten, dass Paddel weit hinten anzusetzen und in Richtung Wassser blicken. Beide Seiten üben.
+  - Vorübung zu zweit für Bogenschlag rückwärts. Der Partner hält das Boot des Übenden an der Spitze umklammern (wie bei "push&pull"), damit der Übende nicht reinfällt und sich traut sich weit zu lehnen. Beim Bogenschöag rückwärts (wie beim Rückwärtspaddeln) darauf achten, dass Paddel weit hinten anzusetzen und in Richtung Wassser blicken. Beide Seiten üben.
   - Zweite Stufe: Bogenschlag rückwärts mit Europaddel.
   - Dritte Stufe: Bogenschlag rückwärts mit Grönlandpaddel (Grund: mehr Auftrieb), wobei beide Hände ein Ende des Paddels greifen und das komplette Paddel über die Wasseroberfläche geführt wird.
   - Flache Stütze in Fahrt (Zweck: schnell Drehen bei Fahrwasser)
   - Hohe Stütze in Fahrt (Zweck: s.o.)
-  - Vorübung zum Haghighi (was ich nciht wirklich verstanden habe, kann ich daher nciht beschreiben)
+  - Vorübung zum Haghighi (was ich nicht wirklich verstanden habe, kann ich daher nicht beschreiben)
+  - [![Haghighi](https://img.youtube.com/vi/sBVh6LquFYU/3.jpg)](https://www.youtube.com/watch?v=sBVh6LquFYU)
 - Feedbackrunde:
   - Wir sind mutiger geworden und trauen uns, stärker zu lehnen.
   - Lehnen ist schwierig und führt öfter noch zum Kentern.
