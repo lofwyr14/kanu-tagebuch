@@ -1,6 +1,52 @@
 # Kanu Trainings-Tagebuch - Impulstraining
 
+## 23. Juni 2021 - Impuls 💦
+
+(Alex)
+
+Drei elementare Kriterien für die Bootskontrolle und EINS-Sein:
+
+1. Bootskontakt, Oberschenkel, Knie und Fußstützen müssen optimal eingestellt sein, gleichzeitig etwas Bewegungsfreiheit
+   haben, Schwerpunktverlagerung muss möglich bleiben
+2. Trimmen, Sitzposition (Schwerpunkt in Längsachse/Position des Körpers)
+3. Sitzkontakt Gesäß im Boot, zusätzl. Dorsalstütze sichert Kraftübertragung aus dem Körper in das Boot/Boot als Teil
+   des Körpers, stramm sitzend, federnder Rückengurt raubt Energie
+
+Kraftkontakt herstellen, Ziel: Manövrieren und Steuern durch Schwerpunktverlagerung und Paddel-Impulsschlag.
+
+Körperotation mit Impuls ins Paddelblatt setzen (catch im Wasser) und Boot dann laufen lassen.
+
+Z. B. Bogenschlag mit Impuls, Kante halten, Boot laufen lassen. Kein mehrfaches Sahneschlagen-Einstechen/Paddeln
+
+Lehnen mit Impulsschlag, abwechseln mit dem Kanten und Boot auf der Stelle drehen / in Uhrzeigersinn und umgekehrt.
+
+Blickrichtung, Paddelhaltung und Schwerpunkt des Körpers sind dabei elementar. Unterschenkel entspannen und Schwerpunkt
+tieferlegen.
+
+Ziehschlag, jedoch gedrückt ausgeführt, sehr starken Impuls setzen und in Blattrichtung lehnen und Schwerpunkt
+aussermittig, dann ASAP sofort gegenkanten und Kante halten, ansonsten plumps. Boot soll parallel durch Impuls
+versetzen.
+
+Bogenschlag mit starkem Impulsschlag, dann gegen Strömung um 180 Grad mittels Schwerpunktberlagerung Kurve fahren.
+Christian an den Steg heran. Boot laufen lassen. Nicht durch Paddelschläge einbremsen oder überkorrigieren.
+
+Geradeausfahren mit längerer Frequenz und Impulssetzung. Boot nach starkem Impuls laufen lassen und Rythmus bzw. Takt
+finden. Zähltakt oder Seemannslieder sehr hilfreich. Flow finden. Auf der See die Wellen nutzen und weit in die Welle
+vorstecken und Surf suchen. Atemrythmus, Transzendenz ..., laufen lassen, Paddlersbox und Körperrotation, Rumpfmuskeln,
+Bauch und Rücken arbeiten lassen. Beine arbeiten mit und Füsse stemmen...Boot laaaaaufen lassen Nicht frühzeitig neuen
+Schlag setzen und dadurch bremsen. Paddel Impuls / catch setzen und Blatt bei Hüfte, Armwinkel halten, Blatt herausnehmen
+und nicht heckrudern...
+
+Fahren mit Musik: 
+Generell sind das Capstan Songs, Gangspill Lieder, Sea Shanty oder auch "Ick heff mol en Hamborger Veermaster sehn"
+
+[![Randy Dandy-O | The Longest Johns](https://img.youtube.com/vi/c0rae6h3lXU/3.jpg)](https://www.youtube.com/watch?v=c0rae6h3lXU)
+
+Für Nichtsänger gäbe es auch Gedichte wie der Zauberlehrling von Goethe.
+
 ## 9. Juni 2021 - Lehnen 💦💦
+
+(Iris)
 
 Der Fokus lag wieder auf "body und boat", mit den Unterschied dass wir letzte Woche den Schwerpunkt über dem Boot gehalten haben (Kanten) und diesmal der Schwerpunkt auf außerhalb des Bootes verlegt wird (Lehnen). Unser Ziel: Lehnen und durch Stützen verhindern, dass wir kentern.
 - Zum Aufwärmen und Wiederholung vom letzten Mal:
@@ -27,6 +73,8 @@ Der Fokus lag wieder auf "body und boat", mit den Unterschied dass wir letzte Wo
   - Das wollen wir üben.
 
 ## 2. Juni 2021 - Für das Bootsgefühl 💦💦💦
+
+(Tina)
 
 - Speedstart
   - vom Steg reinrutschen vorwärts
