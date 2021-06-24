@@ -14,7 +14,7 @@ Der Fokus lag wieder auf "body und boat", mit den Unterschied dass wir letzte Wo
   - Speziellen T-Lenzen: der mit dem vollen Boot fährt auf die Spritzdecke von jemand anderem und dreht sich dann zur Seite und wieder hoch (mit Hilfe des anderen).
   - [![The Dump](https://img.youtube.com/vi/IIeYHwWs5pc/3.jpg)](https://www.youtube.com/watch?v=IIeYHwWs5pc)
 - Zum Thema Lehnen:
-  - Vorübung zu zweit für Bogenschlag rückwärts. Der Partner hält das Boot des Übenden an der Spitze umklammern (wie bei "push&pull"), damit der Übende nicht reinfällt und sich traut sich weit zu lehnen. Beim Bogenschöag rückwärts (wie beim Rückwärtspaddeln) darauf achten, dass Paddel weit hinten anzusetzen und in Richtung Wassser blicken. Beide Seiten üben.
+  - Vorübung zu zweit für Bogenschlag rückwärts. Der Partner hält das Boot des Übenden an der Spitze umklammern (wie bei "push&pull"), damit der Übende nicht reinfällt und sich traut sich weit zu lehnen. Beim Bogenschlag rückwärts (wie beim Rückwärtspaddeln) darauf achten, dass Paddel weit hinten anzusetzen und in Richtung Wassser blicken. Beide Seiten üben.
   - Zweite Stufe: Bogenschlag rückwärts mit Europaddel.
   - Dritte Stufe: Bogenschlag rückwärts mit Grönlandpaddel (Grund: mehr Auftrieb), wobei beide Hände ein Ende des Paddels greifen und das komplette Paddel über die Wasseroberfläche geführt wird.
   - Flache Stütze in Fahrt (Zweck: schnell Drehen bei Fahrwasser)
