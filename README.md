@@ -1,5 +1,101 @@
 # Kanu Trainings-Tagebuch - Impulstraining
 
+## 14. Juli 2021 - Re-Entry and Roll 💦💦💦
+
+(Udo)
+
+### Generell 
+
+Situationsbedingt hat man normalerweise jede Menge Zeit (z.B. im Wattenmeer). 
+Man sollte sich diese Zeit auch nehmen, sich selbst keinen Druck machen. 
+Andererseits ist "Re-Entry and Roll" die schnellste Wiedereinstiegsmethode.
+
+### Vorübungen
+
+Wir machen viele Vorübungen um das Vorgehen in Einzelteil zu zerlegen. Außerdem 
+machen wir es uns in jeder Hinsicht **einfach**, alle Vereinfachungen können **später** rausgenommen werden:
+
+- mit der "Schokoladenseite": also so positionieren, dass man so hochkommt, wie man es auch bei der
+    normalen Rolle am Besten kann.
+
+- mit Grönländer Paddel und dem langen Griff machen. Also so einfach wie möglich!
+
+- Falls vorhanden kann man das Paddel-Float als Hilfe benutzen.
+
+- Vorher noch mal Rollen: Einfachste: Greenland Layback Roll.
+
+- Vorher noch mal Balance Brace: Hinten runterlassen und wieder hochkommen.
+
+- Vorher noch mal "Skulling for Support"
+
+[![Skulling for Support](https://img.youtube.com/vi/_qplOf-NN0M/2.jpg)](https://www.youtube.com/watch?v=_qplOf-NN0M)
+
+Es gibt 2 Möglichkeiten ins Cockpit zu kommen (ich nenne die hier mal "vorwärts" und "rückwärts".
+Christian empfiehlt eher die "rückwärts", muss jeder selber schauen, was ihm besser liegt.
+
+In diesen 3 Videos wird "vorwärts" eingestiegen.
+
+[![RNR1](https://img.youtube.com/vi/XaregzeDvuo/3.jpg)](https://www.youtube.com/watch?v=XaregzeDvuo)
+[![RNR2](https://img.youtube.com/vi/b_kvMCmoZw0/1.jpg)](https://www.youtube.com/watch?v=b_kvMCmoZw0)
+[![RNR3](https://img.youtube.com/vi/ISvzDnwom7U/2.jpg)](https://www.youtube.com/watch?v=ISvzDnwom7U)
+
+Im diesem Video steigt Christian „rückwärts" ein und erklärt noch einiges dazu.
+
+[![RNR3](https://www.rueckenschwimmer.de/impulstraining/2021-06-30/Re-Entry-And-Roll.jpg)](https://www.rueckenschwimmer.de/impulstraining/2021-06-30/Re-Entry-And-Roll.mp4)
+
+### Einstieg ins Cockpit:
+
+  - Bei beiden Varianten ist vieles ähnlich, die Unterschiede sind die Rotationsachse und die Seite zum 
+    Festhalten des Paddels. 
+
+  - Ausgangsstellung:
+    - "vorwärts": Blick Richtung Bug
+    - "rückwärts": Blick Richtung Heck
+    - Das Boot eher etwas schräg halten.
+      
+  - Erstmal ohne Paddel
+    
+  - Beide Hände rechts und links an den Süllrand.  
+
+  - Einsteigen (tief einatmen):
+    - "vorwärts": Füße ins Cockpit, dann geradeaus weiterschieben und dann "reinschrauben" durch 
+      Rotation der Längsachse
+    - "rückwärts": Füße ins Cockpit zum Sitz. Dann die halbe Rückwärtsrolle, also die Beine nach oben hinten, 
+      also Richtung Fußstützen bewegen.
+      
+  - Mit den Armen das Boot zu sich hinziehen, bzw. sich in das Boot ziehen. Damit wird der Po in den Sitz gedrückt, 
+    die Knie können unter die Kniestützen und man ist fest mit dem Boot verbunden.
+    
+  - Vorübung: jetzt wieder aussteigen
+
+  - Vorübung: jetzt Eskimorettung
+
+  - mit Paddel:
+    - "vorwärts": Paddel in die Hand auf der bootsabgewandten Seite. Paddel zusammen mit dem Süllrand festhalten.
+    - "rückwärts": Paddel in die Armbeuge auf der bootsabgewandten Seite.
+
+  - Vorübung: jetzt wieder aussteigen
+
+  - Alternative: Das Paddel vorher unter die Decksleinen stecken
+
+### Hochrollen:
+
+  - Im Grunde wie normal
+
+  - Das Paddel in die richtige Position für's hochrollen bringen
+
+  - Etwas warten „durchatmen“.
+  
+  - Mit dem Auftrieb der Schwimmweste gelangt der Oberkörper in Richtung Wasseroberfläche. Dadurch wird es einfacher.
+    
+  - Nun (wie normal) hochrollen.
+
+## 30. Juni 2021 - Rette sich wer kann 💦💦💦
+
+(Matthias)
+
+todo
+
 ## 23. Juni 2021 - Impuls 💦
 
 (Alex)
