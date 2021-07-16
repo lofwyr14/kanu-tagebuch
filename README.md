@@ -90,11 +90,119 @@ Im diesem Video steigt Christian „rückwärts" ein und erklärt noch einiges d
     
   - Nun (wie normal) hochrollen.
 
-## 30. Juni 2021 - Rette sich wer kann 💦💦💦
+### Update 
+
+zum Schwimmen mit Paddel kann man auch gut Rückenschwimmen (Tip aus dem Wildwasser, dort schwimmt man eh auf dem 
+Rücken).
+
+## 30. Juni 2021 - "Rette sich wer kann" - Wiedereinstiegs- und Rettungstechniken 💦💦💦
 
 (Matthias)
 
-todo
+![Stichpunkte Rettungstechniken](https://www.rueckenschwimmer.de/impulstraining/2021-06-30/Rettungstechniken.jpg "Post Its")
+
+### Solo Rettung
+
+#### Cowboy Einstieg
+
+Der Pechvogel steigt über das Heck wieder ein und robbt ins Cockpit.
+
+Der Einstieg über das Heck erfolgt nicht an der schmalsten Stelle (Heckende) und nicht an der breitesten Stelle (zu nah
+am Cockpit), sondern sollte irgendwo dazwischen erfolgen, um gut auf das Heck zu kommen.
+
+Der Pechvogel befindet sich seitlich neben dem Boot im Wasser, taucht leicht unter, um Schwung und Auftrieb zu bekommen.
+Die Beine sind dabei vom Boot weggerichtet, der Oberkörper zum Boot hingerichtet. Durch diese Bewegung zieht man sich
+mit dem Oberkörper auf das Hinterschiff (Winkel 90°). Anschließend dreht man den Oberkörper in Längsrichtung des Bootes
+zum Cockpit hin, die Beine werden nachgezogen, hängen parallel zum Boot im Wasser und stabilisieren. In dieser Position
+robbt man zum Cockpit hin, der Oberkörper liegt flach auf dem Boot (niedriger Schwerpunkt), das Paddel liegt mittig auf
+dem Süllrand, um die Balance zu halten. Hat man das Cockpit erreicht, lässt man sich erst mit dem Hinterteil in den Sitz
+fallen, danach kommen die Beine ins Boot.
+
+Variante: Paddlefloat oder Grönlandpaddel beim Einstieg als Ausleger benutzen, um die Balance des Bootes besser zu
+halten.
+
+Methode eher für ruhige Gewässer geeignet.
+
+#### Re-entry and roll
+
+Nach der Kenterung das Boot leicht über der Wasserlinie aufrichten, um mit den Beinen vorweg ins Cockpit zu kommen. Sitz
+man im Boot drin, rollt man durch und richtet das Boot wieder auf.
+
+Beste und schnellste Rettungstechnik – erfordert Übung und Routine.
+
+(siehe 14. Juli 2021)
+
+### Partnerrettung
+
+#### Heel Hook mit T-Lenzung (Paralleleinstieg)
+
+Zuverlässigste Technik.
+
+Wird nur kurz drauf eingegangen, da Ablauf ausreichend bekannt. Ablauf sollte immer wieder gefestigt werden.
+
+Nach T-Lenzung Kajak parallel platzieren (Bug zu Heck), Hände des Retters sichern das Boot des Pechvogels durch halten
+der Rundumleine. PV greift die Leine am Hinterdeck, zieht sich leicht auf das Oberschiff, Bein wird gleichzeitig ins
+Cockpit gehoben, Ferse hakt sich unter dem Süllrand ein.
+
+Mit Hilfe der Beinmuskulatur zieht der Gekenterte sich auf das Hinterschiff und hebt das andere Bein ins Cockpit. Durch
+Körperdrehung geht man in die normale Sitzposition über.
+
+#### V-Einstieg
+
+Beide Boote sind parallel zueinander (Bug an Bug). Der Gekenterte befindet sich zwischen den Booten in Höhe des Hecks,
+greift die Rundumleinen beider Boote. Der Retter hält das Boot vor dem Cockpit fest. Der Pechvogel bewegt ein Bein ins
+Cockpit (ähnlich wie beim Heel Hook) und stützt sich mit dem Rücken auf dem Boot (Heck) des Retters ab, zieht das andere
+Bein ins Cockpit nach und steigt so wieder ins Boot ein.
+
+Eher für ruhige Gewässer geeignet
+
+#### Eskimorettung
+
+Retter: Anfahren an das gekenterte Boot im Winkel 45°. Der Gekenterte befindet sich unter Wasser und bewegt beide Arme
+an der Außenlinie des Bootes hin und her. Ist der Kontakt zum Bootsrumpf hergestellt, greift der Gekenterte die
+Bugspitze des anderen Bootes und richtet sich daran auf.
+
+#### Roll & empty
+
+Möglichkeit, mit Wasser vollgelaufenes Cockpit schnell zu entleeren.
+
+Anfahren im Winkel von 90° auf das Boot des “Retters“ in Höhe vorderes Cockpit. Die Spritzdecke des zu lenzenden Boots
+ist geöffnet. Der Pechvogel fährt mit dem Bug auf das Boot / Cockpit rauf und rollt einmal halb durch. Das Cockpit wird
+dadurch gelenzt.
+
+Der Retter unterstützt, indem er den Bug des Pechvogels hält und während des Rollens das Boot wieder mit
+aufrichtet/hochzieht.
+
+#### Generelles zum Paddeln mit vollem Cockpit
+
+Paddeln mit Wasser im Cockpit bis zur Höhe der Sitzschale ist möglich, danach wird’s kritisch.
+
+### Protokolle
+
+Protokolle zählen Aufgaben und notwendige Aktionen in der richtigen Reihenfolge bei schwierigen/gefährliche Situationen
+auf, z. B.:
+
+#### SAFE:
+
+**S**top: Innehalten
+
+**A**ssess the situation: Beurteile und bewerte die Situation
+
+**F**ormulate a plan:  Formuliere einen Plan
+
+**E**xecute: Handeln
+
+#### STEVE: 
+
+**S**elf: Achte zuerst auf Dich selbst
+
+**T**eam: Dann achte auf das Team
+
+**E**quipment: Danach achte auf die Ausrüstung
+
+**V**ictim: Erst dann achte auf den zu Rettenden
+
+**E**xecute: Handeln
 
 ## 23. Juni 2021 - Impuls 💦
 
