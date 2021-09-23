@@ -49,27 +49,49 @@
 (Protokoll: Iris)
 
 Der Fokus lag wieder auf "body und boat", mit den Unterschied dass wir letzte Woche den Schwerpunkt über dem Boot gehalten haben (Kanten) und diesmal der Schwerpunkt auf außerhalb des Bootes verlegt wird (Lehnen). Unser Ziel: Lehnen und durch Stützen verhindern, dass wir kentern.
+
 - Zum Aufwärmen und Wiederholung vom letzten Mal:
+
   - Speedstart (3 Varianten)
+
   - Bootsgruß (über den Bug robben, Bootsspitze küssen, zurück robben)
-  - [![The Dump](https://img.youtube.com/vi/sFrwEV7aMhc/3.jpg)](https://www.youtube.com/watch?v=sFrwEV7aMhc)
+
+    [![The Dump](https://img.youtube.com/vi/sFrwEV7aMhc/3.jpg)](https://www.youtube.com/watch?v=sFrwEV7aMhc)
+
   - Um Boot des Partner hangeln (beachten: Arme lang lassen, die Kraft soll nicht in das Aufstützen der Arme gehen, sondern die Hüfte übernimmt die Hauptarbeit, geht nur wenn man dabei ins Wasser guckt)
+  
 - Situationsbedingter Exkurs:
+  
   - "All In" mit 3 Booten demonstriert. Die drei Geklenterten halten sich und ihre Boote aneinender fest. Sie einigen sich darauf, wer den sträkste ÜPaddler ist und setzen den zuerst wieder ins Boot. Der sollte in der lage sein, in einem wassergefüllten Boot zu paddeln. Ein Paddler hält nur sein Boot und möglichst alle Paddel fest (oder irgendwo einhaken) und sieht zu, dass er bei den anderen bleibt. Der stärkste Pafddler unsd ein Helfer gehen auf die gleich Seite des Bootes neben dem Bioot des Stärksten Pafddlers, sie greifen beide über ein dazwischenliegendes Boot an die Halteleine des mit der Luke nach oben liegenen Booets des Starken und der robbt sich über das andere Boot in sein eigenes. Ab da Wiedereinstieg der anderen beiden wie üblich.
+  
   - Fleißiges Rollen und T-Lenzen mit Wiedereinstieg aller Teilnehmer.
+  
   - Speziellen T-Lenzen: der mit dem vollen Boot fährt auf die Spritzdecke von jemand anderem und dreht sich dann zur Seite und wieder hoch (mit Hilfe des anderen).
-  - [![The Dump](https://img.youtube.com/vi/IIeYHwWs5pc/3.jpg)](https://www.youtube.com/watch?v=IIeYHwWs5pc)
+  
+    [![The Dump](https://img.youtube.com/vi/IIeYHwWs5pc/3.jpg)](https://www.youtube.com/watch?v=IIeYHwWs5pc)
+
 - Zum Thema Lehnen:
+  
   - Vorübung zu zweit für Bogenschlag rückwärts. Der Partner hält das Boot des Übenden an der Spitze umklammern (wie bei "push&pull"), damit der Übende nicht reinfällt und sich traut sich weit zu lehnen. Beim Bogenschlag rückwärts (wie beim Rückwärtspaddeln) darauf achten, dass Paddel weit hinten anzusetzen und in Richtung Wassser blicken. Beide Seiten üben.
+  
   - Zweite Stufe: Bogenschlag rückwärts mit Europaddel.
+  
   - Dritte Stufe: Bogenschlag rückwärts mit Grönlandpaddel (Grund: mehr Auftrieb), wobei beide Hände ein Ende des Paddels greifen und das komplette Paddel über die Wasseroberfläche geführt wird.
+  
   - Flache Stütze in Fahrt (Zweck: schnell Drehen bei Fahrwasser)
+  
   - Hohe Stütze in Fahrt (Zweck: s.o.)
+  
   - Vorübung zum Haghighi: ein rückwärtiger Bogenschlag gelehnt oder stark gelehnt, je nach Mut. Schön weit hinten am Boot beginnen. Rückführen des Paddels (hier in der Vorübung) dann auf der Wasseroberfläche streichend, aber weiterhin gelehnt.
-  - [![Haghighi](https://img.youtube.com/vi/sBVh6LquFYU/3.jpg)](https://www.youtube.com/watch?v=sBVh6LquFYU)
+  
+    [![Haghighi](https://img.youtube.com/vi/sBVh6LquFYU/3.jpg)](https://www.youtube.com/watch?v=sBVh6LquFYU)
+  
 - Feedbackrunde:
+
   - Wir sind mutiger geworden und trauen uns, stärker zu lehnen.
+
   - Lehnen ist schwierig und führt öfter noch zum Kentern.
+
   - Das wollen wir üben.
 
 ## 23. Juni 2021 - Impuls 💦
@@ -120,7 +142,37 @@ Für Nichtsänger gäbe es auch Gedichte wie der Zauberlehrling von Goethe.
 
 (Protokoll: Matthias)
 
-![Stichpunkte Rettungstechniken](https://www.rueckenschwimmer.de/impulstraining/2021-06-30/Rettungstechniken.jpg "Post Its")
+### Stichpunkte Rettungstechniken (Post-Its)
+
+- Demo: Cowboyeinstieg
+  
+- Demo: Paddelfloat Gröpaddel
+
+- Demo: Re-entry and Roll
+
+- Demo: Heelhook
+
+- Demo: V-Einstieg
+
+- Bootsgruß
+
+- zum Boot schwimmen mit Paddel
+
+- Paddeln mit vollem Boot
+
+- Reinfallen - reverse sweep
+
+- Reinfallen - Ziehschlag
+
+- Eskimorettung
+
+- Ranfahren - Hochrollen
+
+- roll & empty
+
+- Wiedereinstieg auf Zeit
+
+- 6eeteam: 2 vor - 1 fällt rein
 
 ### Solo Rettung
 
