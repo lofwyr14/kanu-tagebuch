@@ -320,7 +320,7 @@ Im diesem Video steigt Christian „rückwärts" ein und erklärt noch einiges d
 zum Schwimmen mit Paddel kann man auch gut Rückenschwimmen (Tip aus dem Wildwasser, dort schwimmt man eh auf dem
 Rücken).
 
-## 20. Juli 2021
+## 20. Juli 2021 - Drill und Manöver 💦
 
 (Protokoll: Tina)
 
@@ -363,7 +363,7 @@ Rücken).
 
   - Oberkörper in die Richtung drehen, in die man möchte
 
-## 28. Juli 2021
+## 28. Juli 2021 - Wiederholung 💦
 
 (Protokoll: Tina)
 
