@@ -1,8 +1,74 @@
 # Kanu Trainings-Tagebuch - Impulstraining
 
+## 28. Juli 2021
+
+(Protokoll: Tina)
+
+### Wiederholung:
+
+- 4 Seiten des Paddels: Paddel im Wasser in alle Richtungen bewegen
+
+- Seitliches Versetzen ohne Fahrt durch mehrere Ziehschläge, dabei Blatt komplett im Wasser lassen
+
+- Kombinieren von Paddelschlägen:
+  "Heckruder-Hanging draw-Bugruder" und "Bugruder-Hanging Draw-Heckruder"
+
+- dabei "situativer Bootstrimm" durch Gewichtsverlagerung
+  (leichte Vorlage beim Bugruder, aufrechte Haltung beim Hanging draw, Rücklage beim Heckruder)
+
+- Direktes Fahren auf Brückenpfeiler zu, auf Zuruf des Partners mit Bugruder ausweichen und mit kräftigem Vorschlag mit
+  Catch wieder in Fahrtrichtung bringen
+
+- "Buchten" am Ufer ausfahren mit Bugruder-Vorschlag-Kombination: aufkanten, wenig Vorlage, nicht zu weit vorne
+  einstechen, Blatt tief ins Wasser, aufdrehen, Oberkörper in gewünschte Fahrtrichtung drehen, Vorschlag direkt
+  anschließen, dabei Blatt im Wasser lassen
+
+## 20. Juli 2021
+
+(Protokoll: Tina)
+
+### Theorieteil an Land:
+
+- Unterschied "Drill" (eine Technik oder Bewegungsablauf richtig machen) und "Manöver" (ein Ziel mittels einer Technik
+  oder eines Bewegungsablaufes richtig erreichen )
+
+### Praxis auf dem Steg:
+
+- Paddelblatt mit einer Hand ganz ins Wasser tauchen, Namen in Druckschrift ins Wasser schreiben, dabei den je nach
+  Bewegungsrichtung unterschiedlichen Wasserdruck spüren
+
+### Praxis auf dem Wasser:
+
+- Parallelfahren
+
+- Hanging Draw beidseitig
+
+- Hanging Draw mit Vorwärtsschlag verbinden, so die Hunte queren
+
+- Kombination: Hanging Draw - Bugruder - Heckruder, ohne das Paddel aus dem Wasser zu nehmen
+
+- Kombination: Heckruder (Rücklage) - Bogenschlag rückwärts - Vorwärtsschlag (mit kräftigem Anfangsimpuls)
+
+- Kombination: flache Stütze   (rechter Winkel zwischen Paddel und Boot) in Fahrt - Vorwärtsschlag - Heckruder
+
+- Vorübungen zum Hagigi
+
+- Hohe Stütze: Ellbogen soll nass werden
+
+- Cross Bow - Bugruder mit Armen "andesrum"  (Arm darf aufstützen, Schultern parallel zur Kiellinie, Paddel erst
+  parallel zum Boot, dann leicht aufdrehen)
+
+- Bei allen Übungen:
+
+  - Knie zum Ankanten hochziehen, das andere Bein gestreckt runter drücken
+  
+  - Bei allen Steuerschlägen zum Drehen die Bewegung erst durch einen Bogenschlag auf der Gegenseite einleiten
+  
+  - Oberkörper in die Richtung drehen, in die man möchte
+
 ## 14. Juli 2021 - Re-Entry and Roll 💦💦💦
 
-(Udo)
+((Protokoll: Udo)
 
 ### Generell 
 
@@ -97,7 +163,7 @@ Rücken).
 
 ## 30. Juni 2021 - "Rette sich wer kann" - Wiedereinstiegs- und Rettungstechniken 💦💦💦
 
-(Matthias)
+(Protokoll: Matthias)
 
 ![Stichpunkte Rettungstechniken](https://www.rueckenschwimmer.de/impulstraining/2021-06-30/Rettungstechniken.jpg "Post Its")
 
@@ -206,7 +272,7 @@ auf, z. B.:
 
 ## 23. Juni 2021 - Impuls 💦
 
-(Alex)
+(Protokoll: Alex)
 
 Drei elementare Kriterien für die Bootskontrolle und EINS-Sein:
 
@@ -250,7 +316,7 @@ Für Nichtsänger gäbe es auch Gedichte wie der Zauberlehrling von Goethe.
 
 ## 9. Juni 2021 - Lehnen 💦💦
 
-(Iris)
+(Protokoll: Iris)
 
 Der Fokus lag wieder auf "body und boat", mit den Unterschied dass wir letzte Woche den Schwerpunkt über dem Boot gehalten haben (Kanten) und diesmal der Schwerpunkt auf außerhalb des Bootes verlegt wird (Lehnen). Unser Ziel: Lehnen und durch Stützen verhindern, dass wir kentern.
 - Zum Aufwärmen und Wiederholung vom letzten Mal:
@@ -278,7 +344,7 @@ Der Fokus lag wieder auf "body und boat", mit den Unterschied dass wir letzte Wo
 
 ## 2. Juni 2021 - Für das Bootsgefühl 💦💦💦
 
-(Tina)
+(Protokoll: Tina)
 
 - Speedstart
   - vom Steg reinrutschen vorwärts
