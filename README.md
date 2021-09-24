@@ -48,7 +48,9 @@
 
 (Protokoll: Iris)
 
-Der Fokus lag wieder auf "body und boat", mit den Unterschied dass wir letzte Woche den Schwerpunkt über dem Boot gehalten haben (Kanten) und diesmal der Schwerpunkt auf außerhalb des Bootes verlegt wird (Lehnen). Unser Ziel: Lehnen und durch Stützen verhindern, dass wir kentern.
+Der Fokus lag wieder auf "body und boat", mit dem Unterschied, dass wir letzte Woche den Schwerpunkt über dem Boot
+gehalten haben (Kanten) und diesmal der Schwerpunkt auf außerhalb des Bootes verlegt wird (Lehnen). Unser Ziel: Lehnen
+und durch Stützen verhindern, dass wir kentern.
 
 - Zum Aufwärmen und Wiederholung vom letzten Mal:
 
@@ -58,32 +60,46 @@ Der Fokus lag wieder auf "body und boat", mit den Unterschied dass wir letzte Wo
 
     [![The Dump](https://img.youtube.com/vi/sFrwEV7aMhc/3.jpg)](https://www.youtube.com/watch?v=sFrwEV7aMhc)
 
-  - Um Boot des Partner hangeln (beachten: Arme lang lassen, die Kraft soll nicht in das Aufstützen der Arme gehen, sondern die Hüfte übernimmt die Hauptarbeit, geht nur wenn man dabei ins Wasser guckt)
-  
+  - Um Boot des Partner hangeln (beachten: Arme lang lassen, die Kraft soll nicht in das Aufstützen der Arme gehen,
+    sondern die Hüfte übernimmt die Hauptarbeit, geht nur wenn man dabei ins Wasser guckt)
+
 - Situationsbedingter Exkurs:
-  
-  - "All In" mit 3 Booten demonstriert. Die drei Geklenterten halten sich und ihre Boote aneinender fest. Sie einigen sich darauf, wer den sträkste ÜPaddler ist und setzen den zuerst wieder ins Boot. Der sollte in der lage sein, in einem wassergefüllten Boot zu paddeln. Ein Paddler hält nur sein Boot und möglichst alle Paddel fest (oder irgendwo einhaken) und sieht zu, dass er bei den anderen bleibt. Der stärkste Pafddler unsd ein Helfer gehen auf die gleich Seite des Bootes neben dem Bioot des Stärksten Pafddlers, sie greifen beide über ein dazwischenliegendes Boot an die Halteleine des mit der Luke nach oben liegenen Booets des Starken und der robbt sich über das andere Boot in sein eigenes. Ab da Wiedereinstieg der anderen beiden wie üblich.
-  
+
+  - "All In" mit 3 Booten demonstriert. Die drei Geklenterten halten sich und ihre Boote aneinender fest. Sie einigen
+    sich darauf, wer den sträkste ÜPaddler ist und setzen den zuerst wieder ins Boot. Der sollte in der lage sein, in
+    einem wassergefüllten Boot zu paddeln. Ein Paddler hält nur sein Boot und möglichst alle Paddel fest (oder irgendwo
+    einhaken) und sieht zu, dass er bei den anderen bleibt. Der stärkste Pafddler unsd ein Helfer gehen auf die gleich
+    Seite des Bootes neben dem Bioot des Stärksten Pafddlers, sie greifen beide über ein dazwischenliegendes Boot an die
+    Halteleine des mit der Luke nach oben liegenen Booets des Starken und der robbt sich über das andere Boot in sein
+    eigenes. Ab da Wiedereinstieg der anderen beiden wie üblich.
+
   - Fleißiges Rollen und T-Lenzen mit Wiedereinstieg aller Teilnehmer.
-  
-  - Speziellen T-Lenzen: der mit dem vollen Boot fährt auf die Spritzdecke von jemand anderem und dreht sich dann zur Seite und wieder hoch (mit Hilfe des anderen).
-  
+
+  - Spezielles T-Lenzen: der mit dem vollen Boot fährt auf die Spritzdecke von jemand anderem und dreht sich dann zur
+    Seite und wieder hoch (mit Hilfe des anderen).
+
     [![The Dump](https://img.youtube.com/vi/IIeYHwWs5pc/3.jpg)](https://www.youtube.com/watch?v=IIeYHwWs5pc)
 
 - Zum Thema Lehnen:
-  
-  - Vorübung zu zweit für Bogenschlag rückwärts. Der Partner hält das Boot des Übenden an der Spitze umklammern (wie bei "push&pull"), damit der Übende nicht reinfällt und sich traut sich weit zu lehnen. Beim Bogenschlag rückwärts (wie beim Rückwärtspaddeln) darauf achten, dass Paddel weit hinten anzusetzen und in Richtung Wassser blicken. Beide Seiten üben.
-  
+
+  - Vorübung zu zweit für Bogenschlag rückwärts. Der Partner hält das Boot des Übenden an der Spitze umklammern (wie
+    bei "push&pull"), damit der Übende nicht reinfällt und sich traut sich weit zu lehnen. Beim Bogenschlag rückwärts (
+    wie beim Rückwärtspaddeln) darauf achten, dass Paddel weit hinten anzusetzen und in Richtung Wassser blicken. Beide
+    Seiten üben.
+
   - Zweite Stufe: Bogenschlag rückwärts mit Europaddel.
-  
-  - Dritte Stufe: Bogenschlag rückwärts mit Grönlandpaddel (Grund: mehr Auftrieb), wobei beide Hände ein Ende des Paddels greifen und das komplette Paddel über die Wasseroberfläche geführt wird.
-  
+
+  - Dritte Stufe: Bogenschlag rückwärts mit Grönlandpaddel (Grund: mehr Auftrieb), wobei beide Hände ein Ende des
+    Paddels greifen und das komplette Paddel über die Wasseroberfläche geführt wird.
+
   - Flache Stütze in Fahrt (Zweck: schnell Drehen bei Fahrwasser)
   
   - Hohe Stütze in Fahrt (Zweck: s.o.)
-  
-  - Vorübung zum Haghighi: ein rückwärtiger Bogenschlag gelehnt oder stark gelehnt, je nach Mut. Schön weit hinten am Boot beginnen. Rückführen des Paddels (hier in der Vorübung) dann auf der Wasseroberfläche streichend, aber weiterhin gelehnt.
-  
+
+  - Vorübung zum Haghighi: ein rückwärtiger Bogenschlag gelehnt oder stark gelehnt, je nach Mut. Schön weit hinten am
+    Boot beginnen. Rückführen des Paddels (hier in der Vorübung) dann auf der Wasseroberfläche streichend, aber
+    weiterhin gelehnt.
+
     [![Haghighi](https://img.youtube.com/vi/sBVh6LquFYU/3.jpg)](https://www.youtube.com/watch?v=sBVh6LquFYU)
   
 - Feedbackrunde:
@@ -121,7 +137,7 @@ Ziehschlag, jedoch gedrückt ausgeführt, sehr starken Impuls setzen und in Blat
 aussermittig, dann ASAP sofort gegenkanten und Kante halten, ansonsten plumps. Boot soll parallel durch Impuls
 versetzen.
 
-Bogenschlag mit starkem Impulsschlag, dann gegen Strömung um 180 Grad mittels Schwerpunktberlagerung Kurve fahren.
+Bogenschlag mit starkem Impulsschlag, dann gegen Strömung um 180 Grad mittels Schwerpunktüberlagerung Kurve fahren.
 Christian an den Steg heran. Boot laufen lassen. Nicht durch Paddelschläge einbremsen oder überkorrigieren.
 
 Geradeausfahren mit längerer Frequenz und Impulssetzung. Boot nach starkem Impuls laufen lassen und Rythmus bzw. Takt
@@ -198,8 +214,8 @@ Methode eher für ruhige Gewässer geeignet.
 
 #### Re-entry and roll
 
-Nach der Kenterung das Boot leicht über der Wasserlinie aufrichten, um mit den Beinen vorweg ins Cockpit zu kommen. Sitz
-man im Boot drin, rollt man durch und richtet das Boot wieder auf.
+Nach der Kenterung das Boot leicht über der Wasserlinie aufrichten, um mit den Beinen vorweg ins Cockpit zu kommen. 
+Sitzt man im Boot drin, rollt man durch und richtet das Boot wieder auf.
 
 Beste und schnellste Rettungstechnik – erfordert Übung und Routine.
 
@@ -213,7 +229,7 @@ Zuverlässigste Technik.
 
 Wird nur kurz drauf eingegangen, da Ablauf ausreichend bekannt. Ablauf sollte immer wieder gefestigt werden.
 
-Nach T-Lenzung Kajak parallel platzieren (Bug zu Heck), Hände des Retters sichern das Boot des Pechvogels durch halten
+Nach T-Lenzung Kajak parallel platzieren (Bug zu Heck), Hände des Retters sichern das Boot des Pechvogels durch Halten
 der Rundumleine. PV greift die Leine am Hinterdeck, zieht sich leicht auf das Oberschiff, Bein wird gleichzeitig ins
 Cockpit gehoben, Ferse hakt sich unter dem Süllrand ein.
 
@@ -283,17 +299,17 @@ auf, z. B.:
 
 ### Generell
 
-Situationsbedingt hat man normalerweise jede Menge Zeit (z.B. im Wattenmeer).
+Situationsbedingt hat man normalerweise jede Menge Zeit (z. B. im Wattenmeer).
 Man sollte sich diese Zeit auch nehmen, sich selbst keinen Druck machen.
 Andererseits ist "Re-Entry and Roll" die schnellste Wiedereinstiegsmethode.
 
 ### Vorübungen
 
-Wir machen viele Vorübungen um das Vorgehen in Einzelteil zu zerlegen. Außerdem
+Wir machen viele Vorübungen, um das Vorgehen in Einzelteil zu zerlegen. Außerdem
 machen wir es uns in jeder Hinsicht **einfach**, alle Vereinfachungen können **später** rausgenommen werden:
 
 - mit der "Schokoladenseite": also so positionieren, dass man so hochkommt, wie man es auch bei der
-  normalen Rolle am Besten kann.
+  normalen Rolle am besten kann.
 
 - mit Grönländer Paddel und dem langen Griff machen. Also so einfach wie möglich!
 
@@ -359,7 +375,7 @@ Im diesem Video steigt Christian „rückwärts" ein und erklärt noch einiges d
 
 - Im Grunde wie normal
 
-- Das Paddel in die richtige Position für's hochrollen bringen
+- Das Paddel in die richtige Position fürs Hochrollen bringen
 
 - Etwas warten „durchatmen“.
 
@@ -369,7 +385,7 @@ Im diesem Video steigt Christian „rückwärts" ein und erklärt noch einiges d
 
 ### Update
 
-zum Schwimmen mit Paddel kann man auch gut Rückenschwimmen (Tip aus dem Wildwasser, dort schwimmt man eh auf dem
+zum Schwimmen mit Paddel kann man auch gut Rückenschwimmen (Tipp aus dem Wildwasser, dort schwimmt man eh auf dem
 Rücken).
 
 ## 20. Juli 2021 - Drill und Manöver 💦
@@ -379,7 +395,7 @@ Rücken).
 ### Theorieteil an Land:
 
 - Unterschied "Drill" (eine Technik oder Bewegungsablauf richtig machen) und "Manöver" (ein Ziel mittels einer Technik
-  oder eines Bewegungsablaufes richtig erreichen )
+  oder eines Bewegungsablaufes richtig erreichen)
 
 ### Praxis auf dem Steg:
 
@@ -398,7 +414,7 @@ Rücken).
 
 - Kombination: Heckruder (Rücklage) - Bogenschlag rückwärts - Vorwärtsschlag (mit kräftigem Anfangsimpuls)
 
-- Kombination: flache Stütze   (rechter Winkel zwischen Paddel und Boot) in Fahrt - Vorwärtsschlag - Heckruder
+- Kombination: flache Stütze (rechter Winkel zwischen Paddel und Boot) in Fahrt - Vorwärtsschlag - Heckruder
 
 - Vorübungen zum Hagigi
 
