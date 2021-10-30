@@ -60,17 +60,17 @@ und durch Stützen verhindern, dass wir kentern.
 
     [![The Dump](https://img.youtube.com/vi/sFrwEV7aMhc/3.jpg)](https://www.youtube.com/watch?v=sFrwEV7aMhc)
 
-  - Um Boot des Partner hangeln (beachten: Arme lang lassen, die Kraft soll nicht in das Aufstützen der Arme gehen,
-    sondern die Hüfte übernimmt die Hauptarbeit, geht nur wenn man dabei ins Wasser guckt)
+  - Um das Boot des Partners hangeln (beachten: Arme lang lassen, die Kraft soll nicht in das Aufstützen der Arme gehen,
+    sondern die Hüfte übernimmt die Hauptarbeit. Geht nur, wenn man dabei ins Wasser guckt)
 
 - Situationsbedingter Exkurs:
 
-  - "All In" mit 3 Booten demonstriert. Die drei Geklenterten halten sich und ihre Boote aneinender fest. Sie einigen
-    sich darauf, wer den sträkste ÜPaddler ist und setzen den zuerst wieder ins Boot. Der sollte in der lage sein, in
+  - "All In" mit 3 Booten demonstriert. Die drei Gekenterten halten sich und ihre Boote aneinander fest. Sie einigen
+    sich darauf, wer den stärkste Paddler ist und setzen den zuerst wieder ins Boot. Der sollte in der lage sein, in
     einem wassergefüllten Boot zu paddeln. Ein Paddler hält nur sein Boot und möglichst alle Paddel fest (oder irgendwo
-    einhaken) und sieht zu, dass er bei den anderen bleibt. Der stärkste Pafddler unsd ein Helfer gehen auf die gleich
-    Seite des Bootes neben dem Bioot des Stärksten Pafddlers, sie greifen beide über ein dazwischenliegendes Boot an die
-    Halteleine des mit der Luke nach oben liegenen Booets des Starken und der robbt sich über das andere Boot in sein
+    einhaken) und sieht zu, dass er bei den anderen bleibt. Der stärkste Paddler und ein Helfer gehen auf die gleich
+    Seite des Bootes neben dem Boot des stärksten Paddlers, sie greifen beide über ein dazwischen liegendes Boot an die
+    Halteleine des mit der Luke nach oben liegenden Bootes des Starken und der robbt sich über das andere Boot in sein
     eigenes. Ab da Wiedereinstieg der anderen beiden wie üblich.
 
   - Fleißiges Rollen und T-Lenzen mit Wiedereinstieg aller Teilnehmer.
@@ -83,8 +83,8 @@ und durch Stützen verhindern, dass wir kentern.
 - Zum Thema Lehnen:
 
   - Vorübung zu zweit für Bogenschlag rückwärts. Der Partner hält das Boot des Übenden an der Spitze umklammern (wie
-    bei "push&pull"), damit der Übende nicht reinfällt und sich traut sich weit zu lehnen. Beim Bogenschlag rückwärts (
-    wie beim Rückwärtspaddeln) darauf achten, dass Paddel weit hinten anzusetzen und in Richtung Wassser blicken. Beide
+    bei "push&pull"), damit der Übende nicht reinfällt und sich traut sich weit zu lehnen. Beim Bogenschlag rückwärts 
+    (wie beim Rückwärtspaddeln) darauf achten, dass Paddel weit hinten anzusetzen und in Richtung Wasser blicken. Beide
     Seiten üben.
 
   - Zweite Stufe: Bogenschlag rückwärts mit Europaddel.
@@ -120,11 +120,11 @@ Drei elementare Kriterien für die Bootskontrolle und EINS-Sein:
    haben, Schwerpunktverlagerung muss möglich bleiben
 2. Trimmen, Sitzposition (Schwerpunkt in Längsachse/Position des Körpers)
 3. Sitzkontakt Gesäß im Boot, zusätzl. Dorsalstütze sichert Kraftübertragung aus dem Körper in das Boot/Boot als Teil
-   des Körpers, stramm sitzend, federnder Rückengurt raubt Energie
+   des Körpers, stramm sitzend, federnder Rückengurt raubt Energie.
 
 Kraftkontakt herstellen, Ziel: Manövrieren und Steuern durch Schwerpunktverlagerung und Paddel-Impulsschlag.
 
-Körperotation mit Impuls ins Paddelblatt setzen (catch im Wasser) und Boot dann laufen lassen.
+Körperrotation mit Impuls ins Paddelblatt setzen (catch im Wasser) und Boot dann laufen lassen.
 
 Z. B. Bogenschlag mit Impuls, Kante halten, Boot laufen lassen. Kein mehrfaches Sahneschlagen-Einstechen/Paddeln
 
@@ -134,16 +134,16 @@ Blickrichtung, Paddelhaltung und Schwerpunkt des Körpers sind dabei elementar. 
 tieferlegen.
 
 Ziehschlag, jedoch gedrückt ausgeführt, sehr starken Impuls setzen und in Blattrichtung lehnen und Schwerpunkt
-aussermittig, dann ASAP sofort gegenkanten und Kante halten, ansonsten plumps. Boot soll parallel durch Impuls
+außermittig, dann ASAP sofort gegenkanten und Kante halten, ansonsten plumps. Boot soll parallel durch Impuls
 versetzen.
 
 Bogenschlag mit starkem Impulsschlag, dann gegen Strömung um 180 Grad mittels Schwerpunktüberlagerung Kurve fahren.
 Christian an den Steg heran. Boot laufen lassen. Nicht durch Paddelschläge einbremsen oder überkorrigieren.
 
-Geradeausfahren mit längerer Frequenz und Impulssetzung. Boot nach starkem Impuls laufen lassen und Rythmus bzw. Takt
+Geradeausfahren mit längerer Frequenz und Impulssetzung. Boot nach starkem Impuls laufen lassen und Rhythmus bzw. Takt
 finden. Zähltakt oder Seemannslieder sehr hilfreich. Flow finden. Auf der See die Wellen nutzen und weit in die Welle
-vorstecken und Surf suchen. Atemrythmus, Transzendenz ..., laufen lassen, Paddlersbox und Körperrotation, Rumpfmuskeln,
-Bauch und Rücken arbeiten lassen. Beine arbeiten mit und Füsse stemmen...Boot laaaaaufen lassen Nicht frühzeitig neuen
+vorstecken und Surf suchen. Atemrhythmus, Transzendenz ..., laufen lassen, Paddlersbox und Körperrotation, Rumpfmuskeln,
+Bauch und Rücken arbeiten lassen. Beine arbeiten mit und Füße stemmen... Boot laaaaaufen lassen,  nicht frühzeitig neuen
 Schlag setzen und dadurch bremsen. Paddel Impuls / catch setzen und Blatt bei Hüfte, Armwinkel halten, Blatt herausnehmen
 und nicht heckrudern...
 
@@ -182,7 +182,7 @@ Für Nichtsänger gäbe es auch Gedichte wie der Zauberlehrling von Goethe.
 
 - Eskimorettung
 
-- Ranfahren - Hochrollen
+- Heranfahren - Hochrollen
 
 - roll & empty
 
@@ -207,7 +207,7 @@ robbt man zum Cockpit hin, der Oberkörper liegt flach auf dem Boot (niedriger S
 dem Süllrand, um die Balance zu halten. Hat man das Cockpit erreicht, lässt man sich erst mit dem Hinterteil in den Sitz
 fallen, danach kommen die Beine ins Boot.
 
-Variante: Paddlefloat oder Grönlandpaddel beim Einstieg als Ausleger benutzen, um die Balance des Bootes besser zu
+Variante: Paddelfloat oder Grönlandpaddel beim Einstieg als Ausleger benutzen, um die Balance des Bootes besser zu
 halten.
 
 Methode eher für ruhige Gewässer geeignet.
@@ -227,7 +227,7 @@ Beste und schnellste Rettungstechnik – erfordert Übung und Routine.
 
 Zuverlässigste Technik.
 
-Wird nur kurz drauf eingegangen, da Ablauf ausreichend bekannt. Ablauf sollte immer wieder gefestigt werden.
+Wird nur kurz darauf eingegangen, da Ablauf ausreichend bekannt. Ablauf sollte immer wieder gefestigt werden.
 
 Nach T-Lenzung Kajak parallel platzieren (Bug zu Heck), Hände des Retters sichern das Boot des Pechvogels durch Halten
 der Rundumleine. PV greift die Leine am Hinterdeck, zieht sich leicht auf das Oberschiff, Bein wird gleichzeitig ins
@@ -334,7 +334,7 @@ In diesen 3 Videos wird "vorwärts" eingestiegen.
 
 Im diesem Video steigt Christian „rückwärts" ein und erklärt noch einiges dazu.
 
-[![RNR3](https://www.rueckenschwimmer.de/impulstraining/2021-06-30/Re-Entry-And-Roll.jpg)](https://www.rueckenschwimmer.de/impulstraining/2021-06-30/Re-Entry-And-Roll.mp4)
+[![RNR3](https://www.rueckenschwimmer.de/2021-impulstraining/Re-Entry-And-Roll.jpg)](https://www.rueckenschwimmer.de/2021-impulstraining/Re-Entry-And-Roll.mp4)
 
 ### Einstieg ins Cockpit:
 
@@ -416,7 +416,7 @@ Rücken).
 
 - Kombination: flache Stütze (rechter Winkel zwischen Paddel und Boot) in Fahrt - Vorwärtsschlag - Heckruder
 
-- Vorübungen zum Hagigi
+- Vorübungen zum Haghighi
 
 - Hohe Stütze: Ellbogen soll nass werden
 
@@ -453,3 +453,7 @@ Rücken).
 - "Buchten" am Ufer ausfahren mit Bugruder-Vorschlag-Kombination: aufkanten, wenig Vorlage, nicht zu weit vorne
   einstechen, Blatt tief ins Wasser, aufdrehen, Oberkörper in gewünschte Fahrtrichtung drehen, Vorschlag direkt
   anschließen, dabei Blatt im Wasser lassen
+
+## Anhang:
+
+Online auf https://www.rueckenschwimmer.de/2021-impulstraining/
