@@ -454,6 +454,71 @@ Rücken).
   einstechen, Blatt tief ins Wasser, aufdrehen, Oberkörper in gewünschte Fahrtrichtung drehen, Vorschlag direkt
   anschließen, dabei Blatt im Wasser lassen
 
+## 29. September 2021 - Abschluss  💦
+
+(Protokoll: Christa)
+
+### Balance
+
+Speedstart und Bootsgruß
+
+### Präzises Fahren
+
+#### Ballspiele
+
+- Zwei Gruppen, eine davon bekommt einen Ball und soll diesen in dem Boot einer neutralen Person deponieren, die
+langsam von den Gruppen weg paddelt. Die Mitglieder von Gruppe 2 sollen dies durch Weg-Blockieren, Abdrängen usw.
+verhindern, dürfen die Boote von Gruppe 1 aber nicht festhalten.
+
+- "Alle auf Christian": ein Ball soll in Christians Boot platziert werden, der versucht dies durch Ausweichen zu
+verhindern.
+
+#### Rückmeldungen zu unserer Performance von Christian - darauf ist zu achten:
+
+- Einsatz von Paddeltechnik - es gibt mehr als nur das Vorwärtspaddeln! Richtungsänderungen z.B. schon durch Kanten
+
+- Miteinander kommunizieren hilft - Aktionen absprechen, eine Person hat den Überblick und gibt Anweisungen (dabei klare
+  Ansprache der Personen mit Vornamen - darauf reagieren Menschen am besten)
+
+- Bedenke das Handlungsprotokoll SAFE (Stop/Innehalten - Asses/Bewerten - Formulate a plan/Planen - Execute/Handeln)
+
+#### Schlangenlinie fahren um die Dalben mit jeweils nur einseitigem Paddeln
+
+- Vorwärtsschlag und Heckruder. Bei Einsatz des Heckruders nach hinten lehnen - verändert den Bootstrimm und erhöht die
+  Effektivität des Schlags.
+
+- Paddelschläge nicht zu schnell hintereinander ausführen, vielmehr dem Boot Zeit geben, zu reagieren. Ansonsten wird
+  leicht übersteuert.
+
+- Wird eine stärkere Steuerwirkung benötigt (z.B. bei Gegenwind), hilft ein J-Schlag (aus dem Kanadierfahren entlehnt):
+  das Paddel wird dicht am Boot nach hinten geführt, am Ende des Schlages wird es nach außen aufgedreht, mit der
+  Arbeitsseite nach außen, und (leicht) vom Boot weggedrückt.
+
+### Rettungsmanöver
+
+Christian kentert - mehrmals - unerwartet, verliert dabei Kontakt zu Paddel und Boot.
+
+### Christians Anmerkungen:
+
+- wenn Paddler*in und Boot voneinander getrennt werden, gilt es die/den Paddler*in so schnell wie möglich aus dem Wasser zu bekommen. Z.B. auf das Heck zweier nebeneinander liegender und fest zusammen gehaltener Boote
+
+- eine dritte Person kann hier die/den Gekenterte*n (unter)stützen und betreuen
+
+- Kommunikation miteinander! Auch zwischen den rettenden Gruppen
+
+- Daher: bei jeder Gruppenfahrt sollte ein*e Fahrtenleiter*in benannt sein, die/der klare Handlundsanweisungen gibt
+
+- auch hier an das Protokoll SAFE denken!
+
+- sollte sich die/der Fahrtenleiter*in an der eigentlichen Rettung beteiligen müssen, ist die am wenigsten involvierende Aufgabe zu wählen
+
+- erlaubt ist, was funktioniert!
+
+### Fazit: 
+
+wir beherrschen die Technik, müssen aber deren Einsatz und Anwendung in verschiedenen Situationen noch trainieren!
+
+
 ## Anhang:
 
 Online auf https://www.rueckenschwimmer.de/2021-impulstraining/
