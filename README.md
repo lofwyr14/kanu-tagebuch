@@ -500,7 +500,8 @@ Christian kentert - mehrmals - unerwartet, verliert dabei Kontakt zu Paddel und 
 
 ### Christians Anmerkungen:
 
-- wenn Paddler*in und Boot voneinander getrennt werden, gilt es die/den Paddler*in so schnell wie möglich aus dem Wasser zu bekommen. Z.B. auf das Heck zweier nebeneinander liegender und fest zusammen gehaltener Boote
+- wenn Paddler*in und Boot voneinander getrennt werden, gilt es die/den Paddler*in so schnell wie möglich aus dem Wasser
+  zu bekommen. Z.B. auf das Heck zweier nebeneinander liegender und fest zusammen gehaltener Boote
 
 - eine dritte Person kann hier die/den Gekenterte*n (unter)stützen und betreuen
 
@@ -510,14 +511,14 @@ Christian kentert - mehrmals - unerwartet, verliert dabei Kontakt zu Paddel und 
 
 - auch hier an das Protokoll SAFE denken!
 
-- sollte sich die/der Fahrtenleiter*in an der eigentlichen Rettung beteiligen müssen, ist die am wenigsten involvierende Aufgabe zu wählen
+- sollte sich die/der Fahrtenleiter*in an der eigentlichen Rettung beteiligen müssen, ist die am wenigsten involvierende
+  Aufgabe zu wählen
 
 - erlaubt ist, was funktioniert!
 
 ### Fazit: 
 
 wir beherrschen die Technik, müssen aber deren Einsatz und Anwendung in verschiedenen Situationen noch trainieren!
-
 
 ## Anhang:
 
